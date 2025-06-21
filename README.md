@@ -1,2 +1,2 @@
 # salsa-repo
-Repositório de Salsavor B)
+Repositório de Salvador Vicente, 12938, Multimédia ISMT
